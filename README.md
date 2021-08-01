@@ -7,7 +7,7 @@
 
 </p>
 
-- 𒊹︎︎︎ My name is ALDI FAUZI
+- 𒊹︎︎︎ My name is MyZuyx
 
 - ⚠︎ I am 15 years old 
 
