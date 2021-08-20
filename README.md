@@ -4,7 +4,7 @@
 
 <p align="center">
 
-  <img src="https://i.ibb.co/8snBphr/fake.jpg" />
+  <img src="https://i.ibb.co/wy9XkLf/cewe.jpg" />
 
 </p>
 
